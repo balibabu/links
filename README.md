@@ -1,16 +1,9 @@
 2676
 
 ### Screenshots:
-https://drive.google.com/drive/folders/1WmoOyA4qlPX3-EZaGe-75Y2eQ4Hg
+https://drive.google.com/drive/folders/1WmoOyA4qlPX-EZaGe-75Y2eQ4HgSDSL
 
 ### Resume:
-https://drive.google.com/drive/folders/117HJrNiR_xU45o2m1JptBkDDxr7z
-
-
-
-
-
-
-
+https://drive.google.com/drive/folders/117HJrNiR_U45o2m1JptBkDDxr7zN8SM
 
 oops 🤭 link not working 😂😅
